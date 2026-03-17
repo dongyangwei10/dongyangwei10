@@ -14,3 +14,11 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+- 🔭 I’m currently working on ...home
+- 🌱 I’m currently learning ...github
+- 👯 I’m looking to collaborate on ...myself
+- 🤔 I’m looking for help with ...nobody
+- 💬 Ask me about ...nothing
+- 📫 How to reach me: ...nothing
+- 😄 Pronouns: ...nothing
+- ⚡ Fun fact: ...nothing
