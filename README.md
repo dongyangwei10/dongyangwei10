@@ -21,4 +21,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about ...nothing
 - 📫 How to reach me: ...nothing
 - 😄 Pronouns: ...nothing
-- ⚡ Fun fact: ...nothing
+- ⚡ Fun fact: ...I love running.
